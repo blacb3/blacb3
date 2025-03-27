@@ -13,6 +13,6 @@ Soy un estudiante apasionado por la **animación, modelado y acabados 3D**, en c
 
  ¡No dudes en contactarme o explorar mis proyectos en este perfil!
 
----
+---![miku](https://esportsbureau.com/wp-content/uploads/2025/01/La-llegada-Hatsune-Miku-Fortnite-cerca.jpg)
 
  *Si te interesa mi trabajo, no olvides dejar una estrella en mis repositorios o conectar conmigo.*
